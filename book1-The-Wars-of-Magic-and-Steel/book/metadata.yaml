@@ -11,7 +11,7 @@ version: "1.0"
 isbn: ""
 identifier:
   scheme: "URL"
-  text: "https://github.com/gotm/The-Wars-of-Magic-and-Steel"
+  text: "https://github.com/sparsons-automatic/The-Wars-of-Magic-and-Steel/tree/main/book1-The-Wars-of-Magic-and-Steel"
 subject:
   - Fantasy
   - Adventure
