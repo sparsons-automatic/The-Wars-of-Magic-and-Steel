@@ -163,3 +163,7 @@ Bran’s ears twitched. He stayed still.
 The words sank into Bran like a pebble dropped in still water, sending ripples through his chest. He didn’t move or breathe until her lamp had gone dark.
 
 In the quiet that followed, the wind shifted faintly through the burrow—gentle, listening, almost protective.
+
+After a while, his mother finally set aside her mending and rose, her shoulders sagging from the long day. She checked the hearth once, banked the coals, and drifted toward her sleeping mat. The glow of her lamp faded, and her breathing soon joined the soft rhythm of the others.
+
+Bran waited until he was sure she slept. Then, heart pounding, he slipped from his blanket once more. The air near the tunnel mouth stirred faintly, as if urging him on. He took a careful step toward the dark passage leading back to the Dustkeeper, the promise of answers drawing him forward.
