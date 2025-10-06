@@ -56,6 +56,56 @@ Thistledown gestured to a shelf stacked with tomes bound in faded leather. “Th
 
 Bran stepped into the room, dust swirling around his paws. His heart thudded with both fear and wonder.
 
-Thistledown reached into a drawer and placed three small objects on the desk: a feather, a stone, and a dried sprig of clover. “If you wish to learn, begin by learning to see. Tomorrow, bring me three things overlooked by every other eye in the market. Not what shines, but what hides. In the finding, you will discover how to see the world as magic does.”
+Thistledown cleared a space on the desk, brushing away a drift of dust. From a small drawer, he drew out a single scrap of parchment and placed it before Bran. “If you wish to learn, begin not with strength, but with focus. Tomorrow, you will return and learn to move this—not with paw or breath, but with thought alone.”
 
-Bran swallowed hard, nodding. A riddle-task. A challenge. His first true step away from swords and shields, and onto a path far stranger, and far more dangerous.
+Bran blinked at the paper. “Move it? Without touching?”
+
+Thistledown’s whiskers twitched in amusement. “The sword teaches strength of arm. Magic teaches strength of mind. If you can stir even this, the wind will know you again.”
+
+Bran’s paws prickled. He nodded, though his voice failed him.
+
+“Go now,” said Thistledown, turning back to his candlelight and tomes. “Sleep on the thought. Let it follow you into your dreams. Tomorrow, we begin.”
+
+Bran slipped back into the tunnels, heart racing. Behind him, the candlelight flickered, and dust lifted gently into the air, swirling like it was waiting for him to return.
+
+---
+
+Bran hurried home through the dim passages, the soft glow of lantern-moss guiding his way. The tunnels were quieter now, their usual chatter replaced by the steady heartbeat of dripping water. He paused near his family’s doorway, ears twitching for any sound inside. Only the faint rustle of straw and his mother’s slow breathing answered.
+
+He slipped through the curtain, careful not to disturb the floorboards. His satchel brushed against the doorframe, and he froze—but no one stirred. Relief fluttered through him as he crept to his bed, sliding under the rough blanket and pulling it up to his chin.
+
+Sleep did not come easily. Each time he closed his eyes, he saw the parchment lying on Thistledown’s desk, the faint shimmer of dust swirling in candlelight. His whiskers tingled, and he imagined the paper lifting, turning, changing shape at his command.
+
+Then his dreams turned strange. Water rippled beneath his paws—cool, endless, shimmering like glass. He reached out, and the surface obeyed, rising and curling around his fingers. It formed shapes: a wave, a spiral, then a mouse of pure water that danced before falling apart.
+
+Bran woke with a start. The cavern was still. Only the faint drip of a leaky pipe echoed nearby, like the rhythm of his heartbeat. He pressed a paw to his chest and whispered to the dark, “I didn’t just dream that… did I?”
+
+The water dripped once more, steady as breathing. Bran stared until his eyes grew heavy again, the image of that dancing water-mouse fading slowly into sleep.
+
+---
+
+Morning came with the faint light of lantern-moss seeping through the cracks in the tunnel walls. Bran stirred beneath his blanket, his dreams clinging like cobwebs. The image of water coiling around his paws refused to leave him.
+
+His mother was already bustling near the hearth, stirring a pot of grain. His siblings chattered sleepily as they dressed, oblivious to the secret burning behind Bran’s tired eyes.
+
+He tried to eat, but each spoonful felt distant. Every sound—the clink of a cup, the sigh of wind through the roots—made him think of Thistledown’s voice and that scrap of parchment waiting in the candlelight.
+
+At the market, he helped his mother stack pouches of grain, but his paws moved on their own. His thoughts kept drifting: *What if I could move it again? What if I could move something bigger?* He shook himself, dropping a pouch and earning a gentle scold.
+
+All through the morning, Bran felt the same restless hum in his whiskers, a silent echo of his dream. Whatever was stirring in him, it refused to be quiet.
+
+---
+
+By midday, his mother sent him to fetch water from a nearby stream. The path wound between roots and low ferns, sunlight trickling down through cracks far above. He settled on a smooth stone and unwrapped his lunch: a heel of bread and a slice of carrot. The stream gurgled softly beside him, clear and cool. Bran watched the way the water curled around the rocks and imagined it lifting, shaping itself the way it had in his dream. His whiskers twitched. For a moment, he thought he saw a ripple form the faint outline of a paw before it vanished downstream.
+
+He sat there longer than he should have, lost in thought, until the sound of a far-off bell reminded him to return home. Evening chores waited.
+
+Back at the burrow, the scent of stew filled the air. Bran scrubbed his paws clean, helped his siblings gather kindling, and set the table as his mother ladled dinner. His father returned from the harvest tunnels, weary but cheerful, teasing Bran about growing taller before winter.
+
+They ate together by the dim glow of the hearth. Conversation drifted from market gossip to the weather tunnels and back again. Bran nodded and smiled when spoken to, but his mind was elsewhere—on the parchment, on the Dustkeeper, on the strange feeling in his chest that refused to fade.
+
+When supper was done and the younger mice were ushered to bed, Bran pretended to yawn and followed. The warmth of the stew settled in his stomach, but sleep remained distant. He stared at the ceiling, listening to the burrow grow still.
+
+At last, when the snores around him deepened, Bran slipped from his blankets. His heart thudded as he glanced toward the tunnel mouth leading out into the dark. Tomorrow, he would return to the Dustkeeper.
+
+And this time, he would be ready.
