@@ -69,3 +69,21 @@ His mother’s voice broke the spell. “We’ll need more barley for the evenin
 Bran grinned and nodded, pretending to count coins though his mind was still wandering. His mother chatted on—about Mrs. Thimble’s new mushroom pies, about Sir Alder scolding the guards again, about how the river tunnels might flood come spring. Her voice was a familiar melody, grounding him back in the world of ordinary things.
 
 Yet beneath it all, Bran felt a quiet hum in his chest, as if the market itself breathed with him. Somewhere deep in the tunnels, the wind stirred—soft and curious, waiting for him to listen again.
+
+---
+
+As the day brightened, the market swelled with chatter and movement. Bran found himself grinning at the bustle, the ordinary rhythm of life echoing through the caverns. He scooped grain from a burlap sack, the kernels slipping through his paws like tiny pebbles. When he reached for a new pouch, a stray breeze curled around him—a playful swirl that tugged at his fur.
+
+He blinked and looked around. No one else seemed to notice. His mother was busy weighing acorns for a customer, her paws moving in practiced motions.
+
+Bran hesitated, heart quickening. *Just a little,* he thought. *Like Thistledown said. Attention, not force.*
+
+He took a breath, focusing on the grain scattered across the counter. The air seemed to respond, gathering itself. A few kernels lifted, tumbling together as if caught in an unseen current. They drifted neatly into the open pouch. Bran’s mouth fell open.
+
+The wind stilled as quickly as it had come. He blinked at the filled bag, ears hot with disbelief and pride. His mother turned just in time to see the last few kernels settle.
+
+Her paws froze mid-motion. For a moment, the noise of the market faded. Bran felt her eyes on him—not angry, not frightened, but startled in a way that made his stomach twist.
+
+Then she smiled tightly. “You’re quick today,” she said, voice light. “Go fetch some water before the afternoon rush.”
+
+Bran nodded too fast. “Right away!” He snatched up the jug and hurried from the stall, heart hammering. As he slipped into the side tunnel leading toward the stream, the cool air rushed against his fur. He wasn’t sure if it was his imagination, but he thought the breeze laughed softly as it followed him.
