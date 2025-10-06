@@ -197,3 +197,61 @@ Thistledown chuckled, turning back to his tomes. “You’ve given it form. Next
 Bran looked down at the folded mouse, its paper limbs poised in stillness. For a heartbeat, he thought he saw its tail twitch.
 
 He smiled, a quiet warmth blooming in his chest.
+
+---
+
+### Scene 8: Breath of Life
+
+When Bran returned the next night, Thistledown had already cleared the desk, leaving only the small paper mouse in the center. Its folded limbs were still, but the way the candlelight flickered across them made it seem alive already.
+
+“You gave it form,” Thistledown said. “Now, give it motion. But remember—the same wind that moves can also tear apart. You must guide it, not command it.”
+
+Bran climbed onto the stool, paws trembling. The little mouse looked so fragile that even breathing too hard might ruin it. He swallowed and closed his eyes.
+
+He imagined the parchment as a living thing, remembered the hush of air in the trial ring, the whisper of water curling to his will. The world seemed to narrow until all he could feel was the faint movement of air around his whiskers.
+
+A tiny flutter. A stir of paper.
+
+When Bran opened his eyes, the mouse’s tail twitched—barely more than a tremor, but it was enough to make him gasp. He steadied himself, focusing once more. The folds along the creature’s back rippled, a careful breath passing through it. Then the mouse turned its head, slow and uncertain, as though waking from a long dream.
+
+“It’s alive,” Bran whispered.
+
+Thistledown tilted his head. “No,” he said softly. “It *listens*. There is a difference.”
+
+Bran didn’t answer. The paper mouse had begun to move across the desk, each step a faint crinkle of sound. It looked up at him with blank paper eyes, and for a moment, he could swear he felt it looking back.
+
+The air in the chamber grew heavier. The flame of the candle bent sideways as if watching, too.
+
+“Be still,” Thistledown said quietly.
+
+The mouse stilled, its paper chest rising as if catching its breath. Bran’s paws trembled, caught between disbelief and joy. The air hummed faintly, a vibration that felt alive beneath his fur.
+
+Thistledown’s eyes gleamed, and for the first time, his whiskers twitched in a smile. “Yes… it moves because it wishes to. Magic does not serve; it plays, it tests, it learns its wielder.”
+
+Bran looked from the paper creature to the weasel. “It wanted to move?”
+
+“It wanted to know *you,*” Thistledown replied. “All true magic does. It is the breath between thought and world, the laughter before the wind.”
+
+The little paper mouse stirred again, curling its tail as if in agreement. Bran laughed softly, the sound small and full of wonder.
+
+Thistledown rested a paw on Bran’s shoulder. “Do not fear it, Brannoc. You’ve begun to dance with something very old—and it is pleased with you.”
+
+He blew out the candle, the glow fading into a hush of silver dust. “That is enough for tonight. Let it dream, as you should.”
+
+As the darkness deepened, the paper mouse gave one final twitch, the faint rustle of parchment following Bran to the door—like a whispered promise of play yet to come.
+
+---
+
+### Scene Planning for Continuation
+
+**Scene 8: Breath of Life**
+Once the form is made, Thistledown challenges Bran to animate it. The little paper creature stirs, twitching as if waking from a dream. Bran feels pride and fear in equal measure. Thistledown reminds him that animation flirts with the boundary between magic and life—a dangerous art.
+
+**Scene 9: Questions of the Rats**
+Bran, emboldened, asks about the rat sightings. Thistledown’s expression darkens. He warns Bran that the rats once sought the same powers, and that such knowledge cost many their homes and hearts.
+
+**Scene 10: The Dustkeeper’s Warning**
+Bran presses for answers, but Thistledown’s patience frays. The weasel’s tone sharpens as he warns that rushing ahead invites ruin. He orders Bran to leave and rest, forbidding further experiments until he has learned restraint.
+
+**Scene 11: The Return Home**
+Bran walks the tunnels in silence, the candlelight fading behind him. The whispers of air seem heavy, uncertain. At home, the warmth of his family feels both comforting and distant. He resolves to be cautious—but the promise of what he felt still calls to him, setting the stage for Chapter Four.
