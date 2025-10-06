@@ -131,3 +131,35 @@ Then the wind sighed through the cracks above—a soft murmur, like a warning. B
 *Rats and old magic,* he thought again. *Maybe they aren’t just stories after all.*
 
 Bran turned back toward home, the jug heavy in his paws, the air around him suddenly still and watchful.
+
+---
+
+When Bran returned, the market had quieted. The last of the day’s buyers shuffled home through the tunnels, their voices dim beneath the crackle of distant hearths. His mother waited at the stall, tail curled, her expression unreadable.
+
+“You were gone a while,” she said, taking the jug. “Did you wander off again?”
+
+Bran hesitated. “I… just took the long way. It was cooler by the stream.”
+
+She studied him for a heartbeat longer than usual. Then she sighed and began packing up the empty sacks. “Mm. You always were a dreamer. Just be careful near those outer tunnels—they’re not safe these days.”
+
+Bran blinked. “Because of the rats?”
+
+Her paws stilled. She met his gaze, the soft light of the lanterns catching in her eyes. “You shouldn’t listen to gossip. But yes… the guards say they’ve seen things. It may just be old fears waking up again.”
+
+She turned away, bundling the last of the grain. “Still, I want you home before dark. Promise me.”
+
+Bran nodded, though his mind was already elsewhere. *Old fears waking up.* The words clung to him.
+
+That night, as the family gathered for stew, he caught his mother glancing at him more than once. Not with suspicion—with worry. He tried to smile, to tell a story about the market, but her eyes kept drifting to his paws, to the faint smudge of water still drying on his fur
+
+When the others had gone to bed, she lingered by the hearth, mending a torn apron. Bran pretended to be asleep, watching the shadows play along the walls.
+
+At last, she sighed softly to herself. “Your father would know what to do,” she murmured.
+
+Bran’s ears twitched. He stayed still.
+
+“But you’re so much like him,” she whispered, voice breaking a little. “And that’s what frightens me most.”
+
+The words sank into Bran like a pebble dropped in still water, sending ripples through his chest. He didn’t move or breathe until her lamp had gone dark.
+
+In the quiet that followed, the wind shifted faintly through the burrow—gentle, listening, almost protective.
