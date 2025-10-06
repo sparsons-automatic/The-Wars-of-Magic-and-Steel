@@ -1,0 +1,37 @@
+title: "The Wars of Magic and Steel"
+subtitle: "Book I — The Kingdom Beneath the Roots"
+author:
+  - name: "Scott Parsons"
+    role: "author"
+language: "en"
+publisher: "Wild Leaf Press"
+rights: "Dedicated to the public domain under CC0 1.0 Universal (CC0 1.0)"
+date: "2025-10-05"
+version: "1.0"
+isbn: ""
+identifier:
+  scheme: "URL"
+  text: "https://github.com/gotm/The-Wars-of-Magic-and-Steel"
+subject:
+  - Fantasy
+  - Adventure
+  - Middle Grade
+  - Talking Animals
+  - Magic
+keywords:
+  - Bran
+  - Dustkeeper
+  - The Underwood
+  - Swords
+  - Magic
+  - Friendship
+description: >
+  Beneath the ancient roots of the Great Oak lies a hidden world where mice
+  train with swords, magic has a will of its own, and courage can be found in
+  the smallest of hearts. When young Bran discovers power stirring within him,
+  he must decide whether to hide from destiny—or chase it into the depths of
+  legend.
+series:
+  name: "The Wars of Magic and Steel"
+  volume: 1
+# cover-image: "book/cover.png"
