@@ -107,3 +107,27 @@ He backed away before they could notice him, his heart racing faster than his st
 *Rats and old magic,* he thought. *Why does it all seem to hide in the same shadows?*
 
 He hurried on toward the stream, the jug clutched tight, the echo of the guards’ voices following him like a chill breeze through the roots.
+
+---
+
+The tunnel narrowed before opening to a cavern bright with reflected light. Thin beams filtered down from cracks far above, shimmering on the slow, clear stream that cut through the stone floor. Moss glowed along the banks, turning the water gold and green.
+
+Bran knelt at the edge, setting the jug beside him. The stream whispered and coiled around the rocks like a living thing. He could almost hear it breathe.
+
+He dipped a paw into the current—cold, smooth, alive. Ripples spread outward, bending the light into shifting ribbons. For a moment, he imagined the ripples obeying him, dancing in time with his thoughts. The memory of Thistledown’s lesson pulsed in his whiskers.
+
+“Attention, not force,” he whispered.
+
+He focused on the water just ahead of his paw. The ripples slowed—then curved, curling inward like a spiral shell. Bran held his breath. The spiral tightened, rising in a small, perfect column of water that shimmered in the lantern-moss glow.
+
+It swayed once, like a creature testing its legs, before collapsing with a splash that soaked his tunic. Bran fell back, laughing softly in disbelief.
+
+He looked around, half afraid someone had seen. But the cavern was empty save for the sound of dripping stone and his own heartbeat.
+
+“You *do* listen to me,” he said quietly to the water, smiling.
+
+Then the wind sighed through the cracks above—a soft murmur, like a warning. Bran’s smile faded. He filled the jug quickly and stood, the sound of the market far behind him now. The thought of the guards’ words returned, twining with Thistledown’s voice in his mind.
+
+*Rats and old magic,* he thought again. *Maybe they aren’t just stories after all.*
+
+Bran turned back toward home, the jug heavy in his paws, the air around him suddenly still and watchful.
