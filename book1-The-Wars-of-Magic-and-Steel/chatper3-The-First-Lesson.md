@@ -167,3 +167,33 @@ In the quiet that followed, the wind shifted faintly through the burrow—gentle
 After a while, his mother finally set aside her mending and rose, her shoulders sagging from the long day. She checked the hearth once, banked the coals, and drifted toward her sleeping mat. The glow of her lamp faded, and her breathing soon joined the soft rhythm of the others.
 
 Bran waited until he was sure she slept. Then, heart pounding, he slipped from his blanket once more. The air near the tunnel mouth stirred faintly, as if urging him on. He took a careful step toward the dark passage leading back to the Dustkeeper, the promise of answers drawing him forward.
+
+---
+
+The Dustkeeper’s chamber glowed dimly when Bran slipped inside once more. The air was thick with the scent of old paper and candle smoke. Thistledown stood at the desk, his paws folded behind his back, as if expecting him.
+
+“I see the wind brought you back,” the weasel murmured. “Good. We continue where we left off.”
+
+Bran’s eyes fell to the scraps of parchment still scattered across the desk from the night before. They lay motionless, faintly curled like sleeping leaves.
+
+Thistledown gestured toward them. “You tore it apart with excitement, not intention. Now, you’ll learn to shape with purpose. Magic is craft, not chaos.”
+
+Bran climbed onto the stool and took a deep breath. The candlelight wavered as he reached out a paw, careful not to touch the paper. He thought of the wind—soft, patient, listening. He let that feeling fill him.
+
+The fragments stirred. Slowly at first, then swirling upward in a graceful spiral. Bran’s whiskers quivered as he guided their movement, not with effort but with attention. The scraps folded along invisible lines, edges creasing themselves into neat forms.
+
+Thistledown’s cloudy eyes gleamed. “Better. Feel the rhythm in it, not the rush.”
+
+The fragments began to settle, taking shape once more—the curve of a back, the points of ears, the delicate sweep of a tail. This time, the mouse was smooth and balanced, its shape whole and sure.
+
+Bran exhaled, realizing he had been holding his breath. “I did it.”
+
+The weasel smiled faintly. “You listened again.” He tapped the desk once, sending a faint pulse through the air. “Now, young one, it is time to see if it remembers how to move.”
+
+Bran blinked. “Move?”
+
+Thistledown chuckled, turning back to his tomes. “You’ve given it form. Next, you must learn to give it breath. But not tonight. The wind tires easily, and so do you.”
+
+Bran looked down at the folded mouse, its paper limbs poised in stillness. For a heartbeat, he thought he saw its tail twitch.
+
+He smiled, a quiet warmth blooming in his chest.
