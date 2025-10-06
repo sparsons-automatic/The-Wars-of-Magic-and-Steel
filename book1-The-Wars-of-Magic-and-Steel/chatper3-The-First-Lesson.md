@@ -87,3 +87,23 @@ Her paws froze mid-motion. For a moment, the noise of the market faded. Bran fel
 Then she smiled tightly. “You’re quick today,” she said, voice light. “Go fetch some water before the afternoon rush.”
 
 Bran nodded too fast. “Right away!” He snatched up the jug and hurried from the stall, heart hammering. As he slipped into the side tunnel leading toward the stream, the cool air rushed against his fur. He wasn’t sure if it was his imagination, but he thought the breeze laughed softly as it followed him.
+
+---
+
+The side tunnel opened to the wider trade path, where carts creaked and voices echoed off the walls. As Bran walked, he passed two guards resting near a fountain cut from crystal stone. Their whispers carried over the splash of water.
+
+“Tracks again, by the Great Water Well,” said one, his tone low. “Fresh ones this time. Rat prints.”
+
+Bran froze mid-step.
+
+“You sure?” the other asked, tail flicking. “Could’ve been shrews.”
+
+“Too big. And the sacks by the lower storeroom—torn clean open. The council’s worried. They’re saying the rats might be gathering again.”
+
+Bran’s paws tightened around the jug. The *rats*? Those were story creatures—nightmare things from his father’s tales, whiskers like daggers, eyes like coals.
+
+He backed away before they could notice him, his heart racing faster than his steps. The Great Water Well lay near the outer tunnels—the same direction as Thistledown’s chamber.
+
+*Rats and old magic,* he thought. *Why does it all seem to hide in the same shadows?*
+
+He hurried on toward the stream, the jug clutched tight, the echo of the guards’ voices following him like a chill breeze through the roots.
