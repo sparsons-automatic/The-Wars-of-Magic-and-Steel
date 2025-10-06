@@ -240,18 +240,3 @@ He blew out the candle, the glow fading into a hush of silver dust. “That is e
 
 As the darkness deepened, the paper mouse gave one final twitch, the faint rustle of parchment following Bran to the door—like a whispered promise of play yet to come.
 
----
-
-### Scene Planning for Continuation
-
-**Scene 8: Breath of Life**
-Once the form is made, Thistledown challenges Bran to animate it. The little paper creature stirs, twitching as if waking from a dream. Bran feels pride and fear in equal measure. Thistledown reminds him that animation flirts with the boundary between magic and life—a dangerous art.
-
-**Scene 9: Questions of the Rats**
-Bran, emboldened, asks about the rat sightings. Thistledown’s expression darkens. He warns Bran that the rats once sought the same powers, and that such knowledge cost many their homes and hearts.
-
-**Scene 10: The Dustkeeper’s Warning**
-Bran presses for answers, but Thistledown’s patience frays. The weasel’s tone sharpens as he warns that rushing ahead invites ruin. He orders Bran to leave and rest, forbidding further experiments until he has learned restraint.
-
-**Scene 11: The Return Home**
-Bran walks the tunnels in silence, the candlelight fading behind him. The whispers of air seem heavy, uncertain. At home, the warmth of his family feels both comforting and distant. He resolves to be cautious—but the promise of what he felt still calls to him, setting the stage for Chapter Four.
