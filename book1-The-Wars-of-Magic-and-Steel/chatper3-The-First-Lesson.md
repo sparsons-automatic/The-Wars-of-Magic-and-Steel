@@ -53,3 +53,19 @@ When Bran stepped back into the tunnels, the air felt alive. The drip of water, 
 At home, he slipped into bed unnoticed. The burrow was quiet save for the low hum of sleeping breaths. Bran stared into the dark, paws tingling with leftover energy. He whispered to himself, “Tomorrow, I’ll do it again.”
 
 Only then did sleep find him, gentle and full of shapes that swirled like dust and wind.
+
+---
+
+Morning came gently, with the whisper of roots shifting above and the scent of warm grain drifting through the burrow. Bran blinked awake to the dim green light of lantern-moss. For the first time in many nights, his body didn’t ache, and his thoughts felt clear—like the still air before dawn.
+
+His siblings were still bundled in their straw nests, twitching in dreams. Bran slipped quietly from his blanket and stretched, tail curling with a small sigh of contentment. The memory of the parchment mouse flickered behind his eyes. *I really did it,* he thought, heart fluttering. *I made the wind listen.*
+
+By the time he reached the market tunnels, his mother was already setting up their stall. Steam from nearby cookfires curled in lazy spirals, glinting in the soft mosslight. Bran fell into rhythm beside her—lifting sacks, stacking pouches, brushing stray kernels from the counter. The work felt easier than ever. His paws moved with quiet certainty, as though the air itself lent him strength.
+
+He noticed things he hadn’t before: the way dust danced when a cart rolled by, the tiny currents of air that tugged at the stall’s awning, even the faint pulse of warmth where the hearth tunnels met the market wall. It all moved together—patterns within patterns, like a song only he could hear.
+
+His mother’s voice broke the spell. “We’ll need more barley for the evening trade,” she said, tying a pouch with brisk paws. “Oh, and don’t forget to check our copper count. I swear half the customers ‘forget’ to pay full weight these days.”
+
+Bran grinned and nodded, pretending to count coins though his mind was still wandering. His mother chatted on—about Mrs. Thimble’s new mushroom pies, about Sir Alder scolding the guards again, about how the river tunnels might flood come spring. Her voice was a familiar melody, grounding him back in the world of ordinary things.
+
+Yet beneath it all, Bran felt a quiet hum in his chest, as if the market itself breathed with him. Somewhere deep in the tunnels, the wind stirred—soft and curious, waiting for him to listen again.
