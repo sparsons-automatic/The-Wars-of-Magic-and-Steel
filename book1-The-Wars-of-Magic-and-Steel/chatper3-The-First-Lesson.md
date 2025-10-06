@@ -150,7 +150,7 @@ She turned away, bundling the last of the grain. “Still, I want you home befor
 
 Bran nodded, though his mind was already elsewhere. *Old fears waking up.* The words clung to him.
 
-That night, as the family gathered for stew, he caught his mother glancing at him more than once. Not with suspicion—with worry. He tried to smile, to tell a story about the market, but her eyes kept drifting to his paws, to the faint smudge of water still drying on his fur
+That night, as the family gathered around bowls of mushroom and barley porridge with sweetroot bread, he caught his mother glancing at him more than once. Not with suspicion—with worry. He tried to smile, to tell a story about the market, but her eyes kept drifting to his paws, to the faint smudge of water still drying on his fur.
 
 When the others had gone to bed, she lingered by the hearth, mending a torn apron. Bran pretended to be asleep, watching the shadows play along the walls.
 
