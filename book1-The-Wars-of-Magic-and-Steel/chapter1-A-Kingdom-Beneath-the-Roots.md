@@ -1,6 +1,6 @@
 ## Chapter One: A Kingdom Beneath the Roots
 
-The market caves hummed like a hive. Lantern-moss glowed soft green from the stone walls, lighting rows of woven baskets piled high with carrots, barley stalks, and glossy acorns. Mice bustled shoulder to shoulder, whiskers twitching as they haggled over turnip bundles or sniffed the ripest berries.
+The market caves hummed like a hive. Lantern-moss glowed soft green from the stone walls, lighting rows of woven baskets piled high with carrots, barley stalks, and glossy acorns. Mice bustled shoulder to shoulder, whiskers twitching as they haggled over turnip bundles or sniffed the ripest berries. Father had the harvest shift today, down in the grain tunnels, so the stall was Bran’s to mind with Mother until noon.
 
 Brannoc pressed his paws against the wooden edge of his family’s stall, leaning forward on tiptoe. His sack of grain — carefully threshed and dried all week — had already been divided into neat scoops, tied in pouches of twine. He’d filled them himself. Today was supposed to be proof that he was growing up, able to work alongside his mother without being told three times what to do.
 
@@ -18,9 +18,11 @@ Bran blinked. “But— the stall—”
 
 “I’ll mind it. What use is a son who can’t swing a blade? Go. Just don’t come back with a broken whisker.”
 
-Bran’s heart leapt. He ducked under the woven awning, his small satchel bouncing against his side as he darted toward the sound of clashing steel. The path twisted upward, opening into the ring where the trainees gathered.
+Bran’s heart leapt. He ducked under the woven awning, his small satchel bouncing against his side as he darted toward the sound of clashing steel. The path twisted upward, opening into the ring where the trainees gathered. Cross-tunnels fed into the circle here; when the drafts lined up just so, the ring coughed up odd gusts that sent sand skittering and whiskers quivering. The older mice joked about it. No one liked fighting with grit in their eyes.
 
-The Sword Trials.
+---
+
+**The Sword Trials.**
 
 Dozens of young mice stood in a circle, some hefting wooden practice blades, others watching with eager eyes. At the center, two figures clashed — older apprentices, their strikes sharp and heavy. Each blow rang against shields, sparks jumping as steel met steel. Bran’s paw went to the hilt at his belt. His practice sword, borrowed and far too heavy, thumped against his hip like a reminder: *You are too small.*
 
@@ -52,6 +54,6 @@ Bran’s paws still tingled. His heart hammered. He didn’t know what he’d do
 
 Sir Alder’s eyes narrowed. “Brannoc…” His voice was low, unreadable. “Where did you learn *that*?”
 
-Bran’s mouth opened, but no words came. Around him, the other mice stared — some with awe, others with fear.
+Bran’s mouth opened, but no words came. Around him, the other mice stared — some with awe, others with doubt, a few already glancing toward the tunnel mouths as if measuring the drafts.
 
 And Bran realized with a sinking heart: whatever had just happened, it was not part of the trials.
